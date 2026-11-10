@@ -101,12 +101,21 @@ Voice Casting & Direction - [Ryan Stewart](https://x.com/RyanStewartVO)
 [Ryan Stewart](https://x.com/RyanStewartVO) - Link, Great Deku Tree, Shopkeeper
 
 [Ariel Hack](https://linktr.ee/arielhack) - Navi
+
 [Katie Spradlin](https://x.com/KatieSpradlinVO) - Saria, Kokiri Twins, Kokiri Giving Directions, Deku Scrub 1
+
 [Adam Asenko](https://www.adamasenko.com) - Mido, Training Kokiri, Deku Scrub 2
+
 [Meggie-Elise](https://meggieeliseva.com/) - Fado
+
 [Dexter Manning](https://x.com/DexterJManning) - Kokiri Blocking the Exit
+
 [Cougar MacDowall](https://x.com/CougarMacDowal1) - Kokiri Picking Up Rocks
+
 [Deadjosey](https://x.com/DeadJosey) - Kokiri Discussing the Forest Guardian
+
 Donna Xia - Kokiri on the Shop
+
 Tyler Wood - Kokiri Cutting Grass
+
 [Darien Ink](https://darien.ink/) - Deku Scrub 3
