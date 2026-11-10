@@ -115,8 +115,8 @@ Voice Casting & Direction - [Ryan Stewart](https://x.com/RyanStewartVO)
 
 [Deadjosey](https://x.com/DeadJosey) - Kokiri Discussing the Forest Guardian
 
-Donna Xia - Kokiri on the Shop
+[Donna Xia](https://x.com/DonnaXia_) - Kokiri on the Shop
 
-Tyler Wood - Kokiri Cutting Grass
+[Tyler Wood](https://www.instagram.com/thunderous_criminal/) - Kokiri Cutting Grass
 
 [Darien Ink](https://darien.ink/) - Deku Scrub 3
