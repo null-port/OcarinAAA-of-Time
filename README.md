@@ -95,9 +95,10 @@ You can send me an email at danielnullport@gmail.com.
 # Credits
 
 Development, Design, & Art - [nullport](https://x.com/nullport_)
+
 Voice Casting & Direction - [Ryan Stewart](https://x.com/RyanStewartVO)
 
-### Voice Actors
+## Voice Actors
 [Ryan Stewart](https://x.com/RyanStewartVO) - Link, Great Deku Tree, Shopkeeper
 
 [Ariel Hack](https://linktr.ee/arielhack) - Navi
